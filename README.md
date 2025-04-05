@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **aryanikki2002@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1pS_6X5EMXlQ_cJVNhCOKomGJD3uXcCVz/edit?usp=sharing&ouid=103810733504636926365&rtpof=true&sd=true](https://docs.google.com/document/d/1pS_6X5EMXlQ_cJVNhCOKomGJD3uXcCVz/edit?usp=sharing&ouid=103810733504636926365&rtpof=true&sd=true)
+- 📄 Know about my experiences [https://docs.google.com/document/d/1pS_6X5EMXlQ_cJVNhCOKomGJD3uXcCVz/edit?usp=sharing&ouid=103810733504636926365&rtpof=true&sd=true](https://drive.google.com/file/d/1RKpFx2tQw7sk5PUL5pQDnyZfHxhy0HMb/view?usp=sharing)
 
 - ⚡ Fun fact **I am a good Dancer. I love to travel . And I am a fun person.**
 
